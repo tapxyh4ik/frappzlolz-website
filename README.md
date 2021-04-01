@@ -1,1 +1,1 @@
-# frappzlolz-website
+# Frappzlolz Team
